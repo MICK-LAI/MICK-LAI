@@ -1,1 +1,1 @@
-# 👋 Hi there, I'm Michele 😃
+# 👋 Hi there, I'm Michele
