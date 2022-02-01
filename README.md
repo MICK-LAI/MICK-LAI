@@ -1,3 +1,3 @@
 >>>>___
-# Hi there, I'm Michele
+# Michele Lai
 >>>>___
